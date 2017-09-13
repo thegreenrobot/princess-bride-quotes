@@ -1,2 +1,2 @@
 # princess-bride-quotes
-Random quotes from the Frisky Dingo
+Random quotes from the Princess Bride
